@@ -1,5 +1,10 @@
 ### Hi there 👋
 
+Hi~ This is Christy.
+
+Welcome to my blog [一杯西瓜汁er🍉](https://999795.xyz)
+
+
 <!--
 **Christy99cc/Christy99cc** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
